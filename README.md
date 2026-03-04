@@ -2,7 +2,7 @@
 
 ![原视频封面](./原视频封面.jpg)
 
-原视频链接: https://youtu.be/hDambRVqOp8
+原视频链接: https://youtu.be/hDambRVqOp8 （已下架）
 
 被删除的动态截图(图中链接均已失效):
 ![被删除的动态截图](./被删除的动态截图.jpg)
